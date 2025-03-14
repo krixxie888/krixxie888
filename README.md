@@ -1,4 +1,4 @@
-## About me
+## About me 😗✨
 <!--
 **krixxie888/krixxie888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
